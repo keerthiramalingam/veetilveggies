@@ -1,2 +1,6 @@
 # veetilveggies
-new hobby
+Veetil = @home
+
+Veggies = vegetables
+
+Growing veggies @ home. 
