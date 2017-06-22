@@ -1,8 +1,5 @@
 Dopamine's sake
 =====================
-
-Have been working on my kids school projects on plants for one full year. She is suppposed to plant a seed and water it properly till it germinates. THis is to instill a sense of responsibility and ownership in the kids behaviour. 
-
 One Friday evening as soon as I returned from office, my little champ came with her book in hand, screaming about the task given at school. It doesn't matter whether I have parked my scooter or removed my shoes.
 
 #### "I need plant. DO YOU HAVE PLANT ? Do you have seeds ? " 
